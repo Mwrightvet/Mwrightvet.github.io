@@ -1,2 +1,0 @@
-# Mwrightvet.github.io
-iowebsite
